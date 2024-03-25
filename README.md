@@ -1,1 +1,0 @@
-# chiragarwall.github.io
